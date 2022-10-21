@@ -1,6 +1,6 @@
   
 # Did you like my work?
-## Any donation is much appreciated!
+## Any support is much appreciated!
 
 [<img src="https://www.buymeacoffee.com/assets/img/guidelines/download-assets-sm-1.svg">](https://www.buymeacoffee.com/pascua14)
 
